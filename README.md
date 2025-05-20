@@ -4,7 +4,7 @@
  　　　　　STRAIGHT　TRANS　WASIAN
     
 ***
-![d51bfd520991748c06e585276b2b3a79](https://github.com/user-attachments/assets/e842a232-aa61-47e1-9380-59d8980f7b58)
+<img align="left" alt="img"width="123"src="![1](https://file.garden/aCxZtS2kMRgeNog3/1)">
 >***BYI***
 
 I act like a teenager online, trust me I am not trying to be like Diddy 2.0. I can get very socially awkward in real life. I will block you if I don't like you or you're below 14. You might encounter me in Pony Town, I don't really bite so go ahead and say hi!
