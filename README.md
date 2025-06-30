@@ -3,6 +3,8 @@
 ***
 　　　　**HYUNNIE** ♰ **SOL**　SHE/HER　
      　　　　　STRAIGHT　TRANS　WASIAN
+          
+          Can also call me Cyra or Shiloh
     
 ***
 <img align="right" width="250" height="250" src="https://file.garden/aCxZtS2kMRgeNog3/1">
@@ -17,8 +19,6 @@ INT :
 , SMILE , JOKER , VENOM , DEADPOOL , DANGANRONPA , PONYTOWN , FORSAKEN , LIMBUS COMPANY , DEATH NOTE , DANGEROUSLY YOURS , BASICALLY ANYBODY THAT IS CALM AND CIVIL!
 
 
-***CHECK THEM OUT!***
-
-@nereherrman , @mewocutter , @sweetoru !!
+bursting flames yaoi my truth
 
 i 💞 queerassier , screwups
